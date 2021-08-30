@@ -26,8 +26,8 @@
  
 <br>
 
-# Está em busca de um novo desafio? Me chama =)
+# Está em busca de um novo desafio? Me chama 🚀
 
 ### Tray e Yapay
 
-![VAGAS](https://jobs.kenoby.com/locaweb)
+(https://jobs.kenoby.com/locaweb)
