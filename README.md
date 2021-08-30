@@ -20,7 +20,7 @@
 - 💬 Estudante de inglês.
 - 👩🏻‍💻 Tech Recruiter
 - 🔎 Analista Comportamental DISC
-- ✈️ Adoro viajar e conhecer lugares novos.
+- ✈️ Adoro viajar.
 
 
  
