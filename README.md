@@ -30,4 +30,5 @@
 
 ### Tray e Yapay
 
+Oportunidades incríveis pra você trabalhar e se desenvolvedor em qualquer lugar do mundo.
 (https://jobs.kenoby.com/locaweb)
