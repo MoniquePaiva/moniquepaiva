@@ -15,7 +15,7 @@
 
 # Sobre mim:
 
-- 💁🏻‍♀️ 11/07/1994
+- 💁🏻‍♀️ 11/07
 - 🏫 Formada em Gestão de Recursos Humanos e Pós graduada em Gestão de Pessoas.
 - 💬 Estudante de inglês.
 - 👩🏻‍💻 Tech Recruiter
