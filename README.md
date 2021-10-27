@@ -2,7 +2,7 @@
 
 ## Sejam bem vindos!
 <p align="left">
- Sou a <b>Monique Paiva</b>, moro em Bauru/SP e sou apaixonada por pessoas, tecnologia e desafios.
+ Sou a <b>Monique Paiva</b>, moro em Bauru/SP.Sou apaixonada por pessoas, tecnologia e desafios.
 
 </p>
 <p align="left"> Meus contatos: 🌐 ⤵ </p>
