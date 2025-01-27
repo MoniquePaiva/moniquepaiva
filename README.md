@@ -1,4 +1,4 @@
-# Hi guys 🤖✨
+# Hey guys✨
 
 ## Sejam bem vindos!
 
