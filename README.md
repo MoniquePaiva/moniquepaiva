@@ -15,8 +15,6 @@
 - 🏫 Formada em Gestão de Recursos Humanos e Pós graduada em Gestão de Pessoas.
 - 👩🏻‍💻 Tech Recruiter
 - 🔎 Analista Comportamental DISC
-- ✈️ Adoro viajar.
-
 
  
 <br>
